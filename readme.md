@@ -1,4 +1,4 @@
-Sure, here is the structured explanation in English:
+
 
 ---
 
